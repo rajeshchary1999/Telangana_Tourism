@@ -1,3 +1,0 @@
-# Telangana_Tourism
-
-
